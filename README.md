@@ -1,1 +1,0 @@
-# tugas-pemrograman-ricky
